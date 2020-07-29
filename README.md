@@ -59,6 +59,14 @@ I want you to add to a doc of shared experiences so that we can remember them fo
 
 + (JB) Drop in and drop in at Gabe's house.  The first time someone hung out in the garage, they "had" to drop in on the halfpipe he built.  I don't know how to skate, but whatever let's try.  I ended up stomping on the board, freaking out and grabbing the garage rails thinger on the ceiling, hanging with one hand on it in the air, and then falling into near middle the ramp.  My tailbone was not happy, but it was really funny.
     + JB, Gabe
+
++ (Adam Drake) Sitting on the roof - a green flair in the sky to the south west perhaps a streak perhaps a burst
+    + JB, Lisa F
+
++ (Adam Drake) Lying in JB's extra bed (Ben's ?) trying to go to sleep on a weekend sleepover - JB recommends I imagine a dancing icecream cone. Some time goes by and he asks me how I imagined it. I said there was an ice cream cone in a room - digital 70s technicolor color schemes - it was grooving. JB said his was a grid of infinite expanding ice cream cones dancing in space. I frequently use his ice cream cones in times of sleepy troubles.
+    + JB
+
++ (Adam Drake) bags of sunflower seeds - endless foot spirals down and around elizabeth into the night - why never ranch? always original.
     
 + (JB) LeShawn and I were discussing how people who have been through a lot of shit are, in Shawn's words, "hoarders of thoughts."  This turned into a discussion about generational continuation of abuse, and the plight of the progeny of pimps.  Realized a pimp is a "hoarder of thots."  Good times pacing the hallway up and down together
     + JB, LeShawn
