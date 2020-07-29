@@ -46,4 +46,4 @@ I'll start:
     + tagged: Zach, Bowman
     
 + We spoke about a lot of things.
-    +tagged: Jon Berliner
+    + tagged: Jon Berliner
