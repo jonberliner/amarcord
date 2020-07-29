@@ -34,3 +34,7 @@ I'll start:
 + at some point at Camp Ramah or during a meet up at a USY event, Deshields and I had a discussion about perching ourself on chairs as the most comfortable way to sit.  I can't remember if I started "perching" before or after we talked about it, but that convo still pops up in my head every single time.
     + writer: Jon Berliner
     + tagged: Berliner, Deshields
+
++ Three Scoot Sunday was our Razor scooter gang.  Zach and Bowman ended up getting harassed by cops for scootin' like the hoodlums they are at pre-dawn hours from elementary school to elementary school.  They were being grilled by cops about if they were breaking into cars and stealing stuff.  They told the cops they were scooting around drinking coffee and visiting schools.  The cop let them off, telling them that was so dumb that they couldn't possibly be making it up.
+    + writer: Jon Berliner
+    + tagged: Zach, Bowman
