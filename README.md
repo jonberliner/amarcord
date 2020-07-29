@@ -6,8 +6,10 @@
 [shared memory bank](https://github.com/jonberliner/amarcord/blob/master/memories.md) to add to, look back on, and enjoy
 
 ### why
-I (Jon Berliner) have been through some rough stuff in life and am processing trauma.  Ask each other for specifics before asking me, please.  
+I (Jon Berliner) have been through and am going through some rough stuff in life.  Ask each other for specifics about the rough stuff before asking me, please.
+I'm choosing to channel all the emotion from some dark stuff into doing something enjoyable and beautiful by and for the people I love.
 I'd prefer you to help me as I process by taking 5 min to do something happy and positive rather than longer to re-explain unhappy stuff in the past.
+
 I want you to add to a doc of shared experiences so that we can remember them for the murky beauty they are, rather than framed in defiance to abusers or argued over exactly what happened.  Memory doesn't work that way.  Enjoy the beautiful blur of vibes instead.  Watch people discuss different angles of the same event and see how little journaling down specific parts of a memory matters.
 + All my favorite memories are shared experiences with you beautiful folk.  I don't want stories about me.  I want all of you to capture memories about US.
 + Help me process a ton of trauma by making something beautiful, rather than shaking heads and telling how awful it was.  It wasn't awful, because we've had all the great moments we've had.
