@@ -72,3 +72,5 @@ I want you to add to a doc of shared experiences so that we can remember them fo
     
 + (JB) LeShawn and I were discussing how people who have been through a lot of shit are, in Shawn's words, "hoarders of thoughts."  This turned into a discussion about generational continuation of abuse, and the plight of the progeny of pimps.  Realized a pimp is a "hoarder of thots."  Good times pacing the hallway up and down together
     + JB, LeShawn
+
++ (Sarah) We decided to have a picnic on the water for my birthday last year because it was one of the first sunny days of spring, walked for hours to find food but couldn't find anywhere that was open except the Lebenese deli. Got way too much (incredible) food, set up the most beautiful picnic at the park, hung out by the water until 15 minutes later we each realized at the same time that we both had blue lips and were pretending not to shiver because we didn't want to ruin the moment and laughed about it. (But then moved the picnic to 832)
