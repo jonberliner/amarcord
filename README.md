@@ -4,7 +4,7 @@
 shared memory bank
 
 ### why
-I (Jon Berliner) been through some rough stuff in life and he's processing trauma.  Ask each other for specifics before asking me, please.  
+I (Jon Berliner) have been through some rough stuff in life and am processing trauma.  Ask each other for specifics before asking me, please.  
 I'd prefer you to help me as I process by taking 5 min to do something happy and positive rather than hours to make me re-explain shitty stuff in the past to you.
 I want you to add to a doc of shared experiences so that we can remember them for the murky beauty they are, rather than framed in defiance to abusers or argued over exactly what happened.  Memory doesn't work that way.  Enjoy the beautiful blur of vibes instead.  Watch people discuss different angles of the same event and see how little journaling down specific parts of a memory matters.
 + Friends gave me nearl all my happy memories.  I don't want stories about me.  I want all of you to capture memories about US.
