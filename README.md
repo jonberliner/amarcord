@@ -14,7 +14,7 @@ I want you to add to a doc of shared experiences so that we can remember them fo
 + All my favorite memories are shared experiences with you beautiful folk.  I don't want stories about me.  I want all of you to capture memories about US.
 + Help me process a ton of trauma by making something beautiful, rather than shaking heads and telling how awful it was.  It wasn't awful, because we've had all the great moments we've had.
 
-## What, but this time a bit longer
+### What, but this time a bit longer
 + shared document with stories.  getting details exact is NOT the point - do not argue over what happened.  Just add your angle to a shared experience.
 + If you see a story you were part of but remember it differently, add you're angle!  Have fun trying to figure out who was there, when it was, why we did it, why YOU personally did it.
 + Jump in to tag yourself - don't take offense if someone didn't tag you.  We love each other - I promise that if I missed you, it's not because I think less of you.  I just didn't remember, and will be that much happier to be reminded that I shared an experience with YOU also.
@@ -35,7 +35,7 @@ I want you to add to a doc of shared experiences so that we can remember them fo
 10. That's it! Jon will merge your memory in.
 11. (Bonus Points) The page it leaves you off on has a place to write comments. I encourage you to write comments to other people. You can even tag them. You can access the discussions from the PULL REQUESTS tab at the top of the main project page at any time.
 
-## sigh...why github, you coding dorkwad?
+### sigh...why github, you coding dorkwad?
 + github uses this format called markdown which makes it easier to write thoughts in a bullet format rather than prose format like docs.  i'm trying to encourage small, quick bullets of moments, rather than full journal-style entries.
 + you can "make a pull request" to add/edit stuff from multiple people doing their own thing, without worrying about overwriting or messing up docs
 + pull requests are essentially asking if it's cool to update the main doc with your story.  it gives everyone the ability to mess with their experiences while not worrying about messing up the main doc of shared experiences.
