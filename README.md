@@ -54,5 +54,5 @@ I want you to add to a doc of shared experiences so that we can remember them fo
 + (JB) FJ t-shirt gift
     + tagged: JB, Schwartzy
     
-+ (JB) iane's basement drinking Smoked beers Joe brought to us from Philly Beer week
++ (JB) Diane's basement drinking Smoked beers Joe brought to us from Philly Beer week.  Pretty sure I was buzzed at this point when we made up my high school yearbook quote "A chair-eating bear is a bear eating chair."  I attributed it to "Honest" Abe Lincoln.
     + tagged: JB, Joey V, Diane, Becky
