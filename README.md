@@ -26,8 +26,6 @@ I want you to add to a doc of shared experiences so that we can remember them fo
 + if you wanna try the github model, ask someone that uses it and they'll help set you up (ask berliner, adam, joey v, zach for starting points).
 
 # Memories
-I'll start:
-
 + The Friendsgiving crew cheltenham friends were the closest thing I had to family in high school.  When Gabe's family sold the house, I felt like I lost my family home.  There was a night we went over and "jammed" aka riley and gabe jammed on piano and that indian accordian thinger (name please), and the rest of us got to sing along and do drum circles.  someone, i think adam, brought out yarn and ran around the room, spinning a web around all of us.  i remember feeling nearly delirious with joy - sincerely internally on the edge of talking in tongues, while onthe outside reminding myself to keep some of that joy to myself, because i didn't want to ruin the moment by making it about me.
     + tagging: Gabe, Riley, Adam, Berliner, Cheltenham kids (encourage you to add an angle and fill in tags!)
 
