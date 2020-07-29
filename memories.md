@@ -32,6 +32,7 @@
 
 + (Adam Drake) Sitting on the roof - a green flair in the sky to the south west perhaps a streak perhaps a burst
     + JB, Lisa F
+    + (JB) I still can't convince myself that was anything besids a UFO.  that shit shot up into the sky so fast.
 
 + (Adam Drake) Lying in JB's extra bed (Ben's ?) trying to go to sleep on a weekend sleepover - JB recommends I imagine a dancing icecream cone. Some time goes by and he asks me how I imagined it. I said there was an ice cream cone in a room - digital 70s technicolor color schemes - it was grooving. JB said his was a grid of infinite expanding ice cream cones dancing in space. I frequently use his ice cream cones in times of sleepy troubles.
     + JB
