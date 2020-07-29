@@ -37,7 +37,5 @@ I want you to add to a doc of shared experiences so that we can remember them fo
 
 ### sigh...why github, you coding dorkwad?
 + github uses this format called markdown which makes it easier to write thoughts in a bullet format rather than prose format like docs.  i'm trying to encourage small, quick bullets of moments, rather than full journal-style entries.
-+ you can "make a pull request" to add/edit stuff from multiple people doing their own thing, without worrying about overwriting or messing up docs
-+ pull requests are essentially asking if it's cool to update the main doc with your story.  it gives everyone the ability to mess with their experiences while not worrying about messing up the main doc of shared experiences.
-+ github keeps track of all the changes to a doc - it could be cool to go back and see the history of this if it takes off, including written down side conversations about specific moments we shared together.
-+ if you can't figure out the github, I encourage you to send memories through text, email, whatever, and I'll be sure to fold in.
++ you can "make a pull request" aka ask permission to add your edits to the shared memory document.  this allows multiple people to add/edit stuff at the same time without worrying about overwriting or messing up docs
++ github keeps track of all the changes to a doc - it would be cool to go back and see the history of each memory and people discussing/reliving it together. essentially each memory can have a written down side conversations about specific moments we shared together, and how we remember them the same or differently!
