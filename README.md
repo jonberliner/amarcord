@@ -30,3 +30,7 @@ I'll start:
 + I asked Riley how to hop from rock to rock when water hiking (my family would never let us do family activities growing up - only watching movies or tv together, or going to my mom's parents' house in toledo were allowed - so I had to learn how to appreciate nature from a combo of middle school PEAK trip (not to be confused with Sam "Don't Tell me What's Real" Kassel's peak trip at the Soltrin cabin)), some curated nature walks at Camp Ramah, and winging it trying to keep up with all you guys' awesome naturing abilities.  Riley looked confused laughed, shrugged his shoulders, and said something along the lines of "uuuh, you kinda just walk!" and laughed.  Thanks for making it a joyous moment instead of one I felt embarassed to ask about
     + Also, asked Riley how to do a flip once, and he told me "try really really really hard."  I, actually really sincerely, use that advice for so many things in life still.  It's a hilariously effective way to teach yourself how to do something.  Thanks, Riley!
     + tagged: Jon Berliner, Riley
+    
++ at some point at Camp Ramah or during a meet up at a USY event, Deshields and I had a discussion about perching ourself on chairs as the most comfortable way to sit.  I can't remember if I started "perching" before or after we talked about it, but that convo still pops up in my head every single time.
+    + writer: Jon Berliner
+    + tagged: Berliner, Deshields
