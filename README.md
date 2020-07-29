@@ -6,8 +6,8 @@
 [shared memory bank](https://github.com/jonberliner/amarcord/blob/master/memories.md) to add to, look back on, and enjoy
 
 ### why
-I (Jon Berliner) have been through and am going through some rough stuff in life beyond my control.  Ask each other for specifics about the rough stuff before asking me, please.
-I'm choosing to channel all the emotion from some dark stuff into doing something enjoyable and beautiful by and for the people I love.
+I (Jon Berliner) have been through and am going through some rough stuff in life beyond my control.  Ask each other (please do, btw!) for specifics before asking me, please.
+I'm choosing to channel all the emotion its bringing up in me into something enjoyable and beautiful by and for the people I love.
 I'd prefer you to help me as I process by taking 5 min to do something happy and positive rather than longer to re-explain unhappy stuff in the past.
 
 I want you to add to a doc of shared experiences so that we can remember them for the murky beauty they are, rather than framed in defiance to abusers or argued over exactly what happened.  Memory doesn't work that way.  Enjoy the beautiful blur of vibes instead.  Watch people discuss different angles of the same event and see how little journaling down specific parts of a memory matters.
