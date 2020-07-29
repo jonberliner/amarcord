@@ -45,3 +45,6 @@ I want you to add to a doc of shared experiences so that we can remember them fo
 
 + (JB) Schwartzy and I would sit back to back in his basement and talk to eachother exclusively through text.  No talking allowed.
     + tagged: Jon Berliner, Schwartzy
+    
++ (JB) I was at summer camp around 10, my first summer.  I was walking with Capecci to Friday night services at Ramah, both rocking our finest khaki bottoms (mine were shorts, I think).  I mumbled "looks like the Dairy Queen burnt down again" drolly, don't remember if there was a reason why.  Pech ended up wheezing with laughter.
+    + tagged: JB, Capecci
