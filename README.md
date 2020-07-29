@@ -1,7 +1,7 @@
 # Amacord Project
 
 ### motivation
-+ I, Jon Berliner, grew up in a really abusive house.  One of the more sinister features of my childhood going still into current adulthood is gaslighting.  features include:
++ I grew up in a really abusive house.  One of the more sinister features of my childhood going still into current adulthood is gaslighting.  features include:
     + telling me that my stories never happened
     + attributing my lived experiences that are positive to my brothers, and my brothers' negative experiences to me (really!)
     + intentionally forgetting names
