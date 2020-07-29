@@ -1,4 +1,6 @@
 # Amacord Project
+*note:* if you have a memory to add or see that you want to riff on, but github seems too confusing or intimidating, please text or email a memory, and someone will be sure to add it.
+
 
 ### what
 shared memory bank
