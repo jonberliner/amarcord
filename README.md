@@ -19,7 +19,7 @@ I want you to add to a doc of shared experiences so that we can remember them fo
 + If you see a story you were part of but remember it differently, add you're angle!  Have fun trying to figure out who was there, when it was, why we did it, why YOU personally did it.
 + Jump in to tag yourself - don't take offense if someone didn't tag you.  We love each other - I promise that if I missed you, it's not because I think less of you.  I just didn't remember, and will be that much happier to be reminded that I shared an experience with YOU also.
 + they don't need to include me.  Watch with wonder how just being brought back to certain contexts will open up more opportunities for memories to pour out
-+ DON'T try to remember the whole thing - the point is that we can put in small individual efforts, and put together a rich picture of a shared lived experience that no one, no matter how strong a gaslight brought on you, can take away, so long as we have access to this doc.
++ DON'T try to remember the whole thing - the point is that we can put in small individual efforts, and put together a rich picture of a shared lived experience more clear and stable than any individual perspective, no matter how much effort goes into to said single angle or framing.
 + You may see memories from people that don't know you.  That's okay!  You're wonderful people.  If I can talk about abuse in the light to all you guys, you can be brave and talk about a few wonderful moment's you've had, even if you talk about them in front of wonderful friends' wonderful friends.
 
 ## getting started!
