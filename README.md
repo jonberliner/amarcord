@@ -59,3 +59,6 @@ I want you to add to a doc of shared experiences so that we can remember them fo
 
 + (JB) Drop in and drop in at Gabe's house.  The first time someone hung out in the garage, they "had" to drop in on the halfpipe he built.  I don't know how to skate, but whatever let's try.  I ended up stomping on the board, freaking out and grabbing the garage rails thinger on the ceiling, hanging with one hand on it in the air, and then falling into near middle the ramp.  My tailbone was not happy, but it was really funny.
     + JB, Gabe
+    
++ (JB) LeShawn and I were discussing how people who have been through a lot of shit are, in Shawn's words, "hoarders of thoughts."  This turned into a discussion about generational continuation of abuse, and the plight of the progeny of pimps.  Realized a pimp is a "hoarder of thots."  Good times pacing the hallway up and down together
+    + JB, LeShawn
