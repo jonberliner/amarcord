@@ -1,18 +1,16 @@
 # Amacord Project
-### motivation
-+ You guys are more my family than I think you know, and mean more to me that I realized up until recently.  I grew up in a really abusive house.  Please talk to our friends about what I'm talking about and ask them what I've asked them to read before coming to me to ask for more specifics wrt to fucked up stuff I've had to get through in my past.  One of the more sinister features of my childhood going still into current adulthood is gaslighting.  features include:
-    + telling me that my stories never happened
-    + attributing my lived experiences that are positive to my brothers, and my brothers' negative experiences to me (really!)
-    + intentionally forgetting names
-    + changing the subject to false things/repremanding nonsensically for not respecting mother
-    + I learned to protect memories by shoving them keep down
-        + this has led to a common phenomenon of worrying about early onset dimensia
-            + Laura - when I forgot your name a few years back, it gutted me.  I slipped into a depress bout for weeks, worrying that every happy thing would be taken away from me - that everything period would be taken away until I was sitting there like James Kaan to Kathy Bates' 
-    + I want them to come out so I can remember them for the murky beauty they are, rather than framed in defiance to abusers.
-+ You guys gave me nearly all my happy memories.  I don't want stories about me.  I want to capture memories about US.
-+ Help me process a ton of trauma by making something beautiful, rather than shaking our heads and telling how awful it was.
 
-## What
+### what
+shared memory bank
+
+### why
+I (Jon Berliner) been through some rough stuff in life and he's processing trauma.  Ask each other for specifics before asking me, please.  
+I'd prefer you to help me as I process by taking 5 min to do something happy and positive rather than hours to make me re-explain shitty stuff in the past to you.
+I want you to add to a doc of shared experiences so that we can remember them for the murky beauty they are, rather than framed in defiance to abusers or argued over exactly what happened.  Memory doesn't work that way.  Enjoy the beautiful blur of vibes instead.  Watch people discuss different angles of the same event and see how little journaling down specific parts of a memory matters.
++ Friends gave me nearl all my happy memories.  I don't want stories about me.  I want all of you to capture memories about US.
++ Help me process a ton of trauma by making something beautiful, rather than shaking heads and telling how awful it was.  It wasn't awful, because we've had all the great moments we've had/
+
+## What, but this time a bit longer
 + shared document with stories.  getting details exact is NOT the point - do not argue over what happened.  Just add your angle to a shared experience.
 + If you see a story you were part of but remember it differently, add you're angle!  Have fun trying to figure out who was there, when it was, why we did it, why YOU personally did it.
 + Jump in to tag yourself - don't take offense if someone didn't tag you.  We love each other - I promise that if I missed you, it's not because I think less of you.  I just didn't remember, and will be that much happier to be reminded that I shared an experience with YOU also.
