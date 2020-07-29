@@ -1,5 +1,5 @@
 # Amacord Project
-
+![amarcord](https://images-na.ssl-images-amazon.com/images/I/91rFqVB7URL._SL1500_.jpg)
 ### motivation
 + You guys are more my family than I think you know, and mean more to me that I realized up until recently.  I grew up in a really abusive house.  Please talk to our friends about what I'm talking about and ask them what I've asked them to read before coming to me to ask for more specifics wrt to fucked up stuff I've had to get through in my past.  One of the more sinister features of my childhood going still into current adulthood is gaslighting.  features include:
     + telling me that my stories never happened
