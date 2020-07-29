@@ -34,9 +34,8 @@ I want you to add to a doc of shared experiences so that we can remember them fo
 11. (Bonus Points) The page it leaves you off on has a place to write comments. I encourage you to write comments to other people. You can even tag them. You can access the discussions from the PULL REQUESTS tab at the top of the main project page at any time.
 
 ## sigh...why github, you coding dorkwad?
-+ i think in bullet points, and github uses this format called markdown which makes it easier to write thoughts in a bullet format rather than prose format like docs
++ github uses this format called markdown which makes it easier to write thoughts in a bullet format rather than prose format like docs.  i'm trying to encourage small, quick bullets of moments, rather than full journal-style entries.
 + you can "make a pull request" to add/edit stuff from multiple people doing their own thing, without worrying about overwriting or messing up docs
 + pull requests are essentially asking if it's cool to update the main doc with your story.  it gives everyone the ability to mess with their experiences while not worrying about messing up the main doc of shared experiences.
-+ github keeps track of all the changes to a doc - it could be cool to go back and see the history of this if it takes off
-+ just text me or something and I can change it to a google doc if need be.
-+ to try the github, ask someone that uses it and they'll help set you up (ask berliner, adam, joey v, zach for starting points).
++ github keeps track of all the changes to a doc - it could be cool to go back and see the history of this if it takes off, including written down side conversations about specific moments we shared together.
++ if you can't figure out the github, I encourage you to send memories through text, email, whatever, and I'll be sure to fold in.
