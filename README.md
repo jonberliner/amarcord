@@ -56,3 +56,6 @@ I want you to add to a doc of shared experiences so that we can remember them fo
     
 + (JB) Diane's basement drinking Smoked beers Joe brought to us from Philly Beer week.  Pretty sure I was buzzed at this point when we made up my high school yearbook quote "A chair-eating bear is a bear eating chair."  I attributed it to "Honest" Abe Lincoln.
     + tagged: JB, Joey V, Diane, Becky
+
++ (JB) Drop in and drop in at Gabe's house.  The first time someone hung out in the garage, they "had" to drop in on the halfpipe he built.  I don't know how to skate, but whatever let's try.  I ended up stomping on the board, freaking out and grabbing the garage rails thinger on the ceiling, hanging with one hand on it in the air, and then falling into near middle the ramp.  My tailbone was not happy, but it was really funny.
+    + JB, Gabe
