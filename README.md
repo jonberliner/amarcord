@@ -54,5 +54,5 @@ I want you to add to a doc of shared experiences so that we can remember them fo
 + (JB) FJ t-shirt gift
     + tagged: JB, Schwartzy
     
-+ Diane's basement drinking Smoked beers Joe brought to us from Philly Beer week
++ (JB) iane's basement drinking Smoked beers Joe brought to us from Philly Beer week
     + tagged: JB, Joey V, Diane, Becky
