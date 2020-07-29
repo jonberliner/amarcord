@@ -21,6 +21,13 @@
 + DON'T try to remember the whole thing - the point is that we can put in small individual efforts, and put together a rich picture of a shared lived experience that no one, no matter how strong a gaslight brought on you, can take away, so long as we have access to this doc.
 + You may see memories from people that don't know you.  That's okay!  You're wonderful people.  If I can talk about abuse in the light to all you guys, you can be brave and talk about a few wonderful moment's you've had, even if you talk about them in front of wonderful friends' wonderful friends.
 
+## sigh...why github, you coding dorkwad?
++ i think in bullet points, and github uses this format called markdown which makes it easier to write thoughts in a bullet format rather than prose format like docs
++ you can "make a pull request" to add/edit stuff from multiple people doing their own thing, without worrying about overwriting or messing up docs
++ github keeps track of all the changes to a doc - it could be cool to go back and see the history of this if it takes off
++ just text me or something and I can change it to a google doc if need be.
++ if you wanna try the github model, ask someone that uses it and they'll help set you up (ask berliner, adam, joey v, zach for starting points).
+
 # Memories
 I'll start:
 
