@@ -41,3 +41,6 @@ I want you to add to a doc of shared experiences so that we can remember them fo
     
 + (Laura PHP) We spoke about a lot of things.
     + tagged: Jon Berliner, Laura PHP
+
++ (JB) Schwartzy and I would sit back to back in his basement and talk to eachother exclusively through text.  No talking allowed.
+    + tagged: Jon Berliner, Schwartzy
