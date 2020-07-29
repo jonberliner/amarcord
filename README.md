@@ -23,7 +23,7 @@ I want you to add to a doc of shared experiences so that we can remember them fo
 ## getting started!
 1. Sign up for a GitHub Account (Top Right)
 2. Verify your email via the link in your inbox
-3. Go to: github.com/jonberliner/amarcor
+3. Go to: github.com/jonberliner/amarcord
 4. Click README.md
 5. Click the pencil icon at the top right of the main field
 6. Add your memory: start with a + (it will turn into a pretty bullet point when you're done editing.  Start your memory with your name in parentheses.  After the memory, indent and add another plus followed by the people you remember there in the memory.  Don't overthink it!  The point is to jsut get it down and have others come in to clarify more later.
