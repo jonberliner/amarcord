@@ -44,3 +44,6 @@ I'll start:
 + Three Scoot Sunday was our Razor scooter gang.  Zach and Bowman ended up getting harassed by cops for scootin' like the hoodlums they are at pre-dawn hours from elementary school to elementary school.  They were being grilled by cops about if they were breaking into cars and stealing stuff.  They told the cops they were scooting around drinking coffee and visiting schools.  The cop let them off, telling them that was so dumb that they couldn't possibly be making it up.
     + writer: Jon Berliner
     + tagged: Zach, Bowman
+    
++ We spoke about a lot of things.
+    +tagged: Jon Berliner
