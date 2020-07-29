@@ -67,3 +67,6 @@ I want you to add to a doc of shared experiences so that we can remember them fo
     + JB
 
 + (Adam Drake) bags of sunflower seeds - endless foot spirals down and around elizabeth into the night - why never ranch? always original.
+    
++ (JB) LeShawn and I were discussing how people who have been through a lot of shit are, in Shawn's words, "hoarders of thoughts."  This turned into a discussion about generational continuation of abuse, and the plight of the progeny of pimps.  Realized a pimp is a "hoarder of thots."  Good times pacing the hallway up and down together
+    + JB, LeShawn
