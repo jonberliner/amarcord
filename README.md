@@ -3,7 +3,7 @@
 
 
 ### what
-shared memory bank
+shared memory bank to add to, look back on, and enjoy
 
 ### why
 I (Jon Berliner) have been through some rough stuff in life and am processing trauma.  Ask each other for specifics before asking me, please.  
