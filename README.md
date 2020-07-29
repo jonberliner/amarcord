@@ -1,9 +1,9 @@
-# [Amarcord Project](https://github.com/jonberliner/amarcord/blob/master/memories.md)
+# Amarcord Project
 *note:* if you have a memory to add or see that you want to riff on, but github seems too confusing or intimidating, please text or email a memory, and someone will be sure to add it.
 
 
 ### what
-shared memory bank to add to, look back on, and enjoy
+[shared memory bank](https://github.com/jonberliner/amarcord/blob/master/memories.md) to add to, look back on, and enjoy
 
 ### why
 I (Jon Berliner) have been through some rough stuff in life and am processing trauma.  Ask each other for specifics before asking me, please.  
