@@ -65,6 +65,8 @@ I want you to add to a doc of shared experiences so that we can remember them fo
 
 + (Adam Drake) Lying in JB's extra bed (Ben's ?) trying to go to sleep on a weekend sleepover - JB recommends I imagine a dancing icecream cone. Some time goes by and he asks me how I imagined it. I said there was an ice cream cone in a room - digital 70s technicolor color schemes - it was grooving. JB said his was a grid of infinite expanding ice cream cones dancing in space. I frequently use his ice cream cones in times of sleepy troubles.
     + JB
+    + (JB riffing): Adam, how old were we?  Earliest things I can remember from our sleepovers was discussing the universe and if it's infinite or how it's going to end and how small we are around 12-13.  Born explorers of the infinite, bb!
+
 
 + (Adam Drake) bags of sunflower seeds - endless foot spirals down and around elizabeth into the night - why never ranch? always original.
     
