@@ -73,6 +73,8 @@
 
 + (Adam Drake) I remember the (first?) time you studied for a math test in Mr. Johnson's class and you got a good grade on a test - the huge smile you made. I wonder what it felt like for you then.
     - JB
+    (JB) could well have been.  always took for granted that my grades were from never studying.  Same stuff went on in college math, too.  Why study for hours for an A when you can just, like, not and get somewhere from an B to an A?  Seems like a there's somewhere else to better spend time.  Maybe it felt vindicating, like "I knew I could get it better if I studied."  It's way more fun studying rather than winging it, btw.
+    Was there something particular about that time?  Figure I smile a lot.
 
 + (Adam Drake) The tension of slurpee flavor choices - I learned that coke was best for me. You liked blue raspberry. We ate taquitos, you showed me combos and franks. When it rained my socks would fall off my ankles in my shoe - I hated that. We still got slurpees. Slurpees morphed into gusto's pizza - the tragedy that was the day they stopped serving it.
     - JB
