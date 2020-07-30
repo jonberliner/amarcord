@@ -1,4 +1,9 @@
 # Memories
++ (Adam Drake) Sitting on the roof - a green flair in the sky to the south west perhaps a streak perhaps a burst
+    + JB, Lisa F
+    + (JB) I still can't convince myself that was anything besids a UFO.  that shit shot up into the sky so fast.
+
+
 + (Jon Berliner) The Friendsgiving crew cheltenham friends were the closest thing I had to family in high school.  When Gabe's family sold the house, I felt like I lost my family home.  There was a night we went over and "jammed" aka riley and gabe jammed on piano and that indian accordian thinger (name please), and the rest of us got to sing along and do drum circles.  someone, i think adam, brought out yarn and ran around the room, spinning a web around all of us.  i remember feeling nearly delirious with joy - sincerely internally on the edge of talking in tongues, while onthe outside reminding myself to keep some of that joy to myself, because i didn't want to ruin the moment by making it about me.
     + tagging: Gabe, Riley, Adam, Berliner, Cheltenham kids (encourage you to add an angle and fill in tags!)
 
@@ -29,10 +34,11 @@
 
 + (JB) Drop in and drop in at Gabe's house.  The first time someone hung out in the garage, they "had" to drop in on the halfpipe he built.  I don't know how to skate, but whatever let's try.  I ended up stomping on the board, freaking out and grabbing the garage rails thinger on the ceiling, hanging with one hand on it in the air, and then falling into near middle the ramp.  My tailbone was not happy, but it was really funny.
     + JB, Gabe
+    
+    
++ (Adam Drake) I remember the first time we were making a plan to hang out waiting for busses in the parking lot at EP - we had it all planned to do it on a Wednesday early day and somehow I called my mom and asked if I could but we couldn't figure out how to tell her where you lived so she didn't let the hangout happen.
+    - JB
 
-+ (Adam Drake) Sitting on the roof - a green flair in the sky to the south west perhaps a streak perhaps a burst
-    + JB, Lisa F
-    + (JB) I still can't convince myself that was anything besids a UFO.  that shit shot up into the sky so fast.
 
 + (Adam Drake) Lying in JB's extra bed (Ben's ?) trying to go to sleep on a weekend sleepover - JB recommends I imagine a dancing icecream cone. Some time goes by and he asks me how I imagined it. I said there was an ice cream cone in a room - digital 70s technicolor color schemes - it was grooving. JB said his was a grid of infinite expanding ice cream cones dancing in space. I frequently use his ice cream cones in times of sleepy troubles.
     + JB
@@ -68,8 +74,11 @@
 + (Adam Drake) I remember the (first?) time you studied for a math test in Mr. Johnson's class and you got a good grade on a test - the huge smile you made. I wonder what it felt like for you then.
     - JB
 
-+ (Adam Drake) I remember the first time we were making a plan to hang out waiting for busses in the parking lot at EP - we had it all planned to do it on a Wednesday early day and somehow I called my mom and asked if I could but we couldn't figure out how to tell her where you lived so she didn't let the hangout happen.
-    - JB
-
 + (Adam Drake) The tension of slurpee flavor choices - I learned that coke was best for me. You liked blue raspberry. We ate taquitos, you showed me combos and franks. When it rained my socks would fall off my ankles in my shoe - I hated that. We still got slurpees. Slurpees morphed into gusto's pizza - the tragedy that was the day they stopped serving it.
     - JB
+
++ (JB) Adam made Koolaid chicken at Elk Mountain once bc we ran out of something (lime?)  Some of the best chicken I ever had.
+    + Elk mountain folk
+    
++ (JB) Pushing Desh to "seize the moment" towards the end of Gesher and him telling me that how he wanted to have that particular moment was by reading the bio of Malcolm X.  Still think on that as a primo example of standing your ground for doing your thing.
+    + Deshields, JB
