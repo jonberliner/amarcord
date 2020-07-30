@@ -85,3 +85,9 @@
     
 + (JB) We would sit in Jon-o's living room and do the ol' replace-the-vodka-with-water routine.  Then go out tipsy and meet up with Jon-os older (I think?) high school friends (names?).  Remember something about them having a blender in their kitchen.  Can't remember if we joked about that or if a kitchenaid blender just really owns the space.
     + Jon-o, JB
+
++ (Sarah) Your deep bond with the woman from the Hasten's store.
+    +JB, Sarah
+
++ (Sarah) When Jeff poisoned us and we were already so close to death but you couldn't leave Mexico without a queso fundido. The world's coolest outdoor kitchen. Also the tiny dog that guarded the pool. Also the jaguar, which was real. 
+    +JB, Sarah
