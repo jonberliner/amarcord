@@ -62,4 +62,10 @@
     + Your wild sweaters
     + Your beautiful hugs and willingness to engage with us always
 
++ (Adam Drake) Senior year in spanish class Sr. Birzes called you out for "doing homework" in class - it was peak tom waits time for you in my memory - you were writing lyrics frantically in every class. She didn't believe that you weren't doing homework. I'm sorry I didn't stand up for you.
 
++ (Adam Drake) I remember the (first?) time you studied for a math test in Mr. Johnson's class and you got a good grade on a test - the huge smile you made. I wonder what it felt like for you then.
+
++ (Adam Drake) I remember the first time we were making a plan to hang out waiting for busses in the parking lot at EP - we had it all planned to do it on a Wednesday early day and somehow I called my mom and asked if I could but we couldn't figure out how to tell her where you lived so she didn't let the hangout happen.
+
++ (Adam Drake) The tension of slurpee flavor choices - I learned that coke was best for me. You liked blue raspberry. We ate taquitos, you showed me combos and franks. When it rained my socks would fall off my ankles in my shoe - I hated that. We still got slurpees. Slurpees morphed into gusto's pizza - the tragedy that was the day they stopped serving it.
