@@ -82,3 +82,6 @@
     
 + (JB) Pushing Desh to "seize the moment" towards the end of Gesher and him telling me that how he wanted to have that particular moment was by reading the bio of Malcolm X.  Still think on that as a primo example of standing your ground for doing your thing.
     + Deshields, JB
+    
++ (JB) We would sit in Jon-o's living room and do the ol' replace-the-vodka-with-water routine.  Then go out tipsy and meet up with Jon-os older (I think?) high school friends (names?).  Remember something about them having a blender in their kitchen.  Can't remember if we joked about that or if a kitchenaid blender just really owns the space.
+    + Jon-o, JB
