@@ -85,3 +85,5 @@
     
 + (JB) We would sit in Jon-o's living room and do the ol' replace-the-vodka-with-water routine.  Then go out tipsy and meet up with Jon-os older (I think?) high school friends (names?).  Remember something about them having a blender in their kitchen.  Can't remember if we joked about that or if a kitchenaid blender just really owns the space.
     + Jon-o, JB
+    
+    + (Lisa) running into you and sarah at sharlene's super late night- we were both so freakin excited to see each other. then also running into each other at that italian place Sauce in the LES late at night. running into you in nyc is my favorite thing ever. every time we shout at each others faces WE NEED TO HANG OUT ALL THE TIME STARTING RIGHT NOW which is totally true. it feels like a hack, like, wait- one of my all time favorite people from my childhood ALSO gets to be here in my adulthood, standing outside some random spot we both went to inside the whirlpool of our regular lives!???? i love that feeling. 
