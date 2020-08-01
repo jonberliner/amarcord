@@ -22,7 +22,7 @@ I want you to add to a doc of shared experiences so that we can remember them fo
 + DON'T try to remember the whole thing - the point is that we can put in small individual efforts, and put together a rich picture of a shared lived experience more clear and stable than any individual perspective, no matter how much effort goes into to said single angle or framing.
 + You may see memories from people that don't know you.  That's okay!  You're wonderful people.  If I can talk about abuse in the light to all you guys, you can be brave and talk about a few wonderful moment's you've had, even if you talk about them in front of wonderful friends' wonderful friends.
 
-## getting started!
+## how to contribute!
 1. Sign up for a GitHub Account (Top Right)
 2. Verify your email via the link in your inbox
 3. Go to: github.com/jonberliner/amarcord
