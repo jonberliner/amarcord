@@ -2,7 +2,11 @@
 + (Adam Drake) Sitting on the roof - a green flair in the sky to the south west perhaps a streak perhaps a burst
     + JB, Lisa F
     + (JB) I still can't convince myself that was anything besids a UFO.  that shit shot up into the sky so fast.
+    + (Lisa) yes i remember this roof time! i dont remember who all was there but i think we crawled out onto the roof from your bedroom window JB? maybe there were 40s involved because remember that we thought drinking 40s was cool?? maybe it was. i remember this being  a hilarious night. one of the first of us really hanging out together, and me being like, alright awesome me and jon berliner are friends for real now! i totally treasure this night, or if it was another one like it, i treasure it anyway. 
+    + (JB) lol you remember a bedroom window - but it's actually a metal + glass door that lost the spring, so every time anyone forgot to close it gently it would slam - that eventually shattered the glass panes on the door, so we started crawling through the bottom one like a window.
 
++ (JB) The crave case day.  Joe and I walked past a white castle at like 3AM smashed and I told him I've never been to White Castle before.  We decided we needed a crave case - suitcase fulla burgers.  It was like $24 bucks and we agreed we didn't have the money to spend that for a laugh.  So we made the grown ass decision that it would be the only food to touch our mouths for 24hrs.  Hijinx ensued.
+    + JB, Joey V
 
 + (Jon Berliner) The Friendsgiving crew cheltenham friends were the closest thing I had to family in high school.  When Gabe's family sold the house, I felt like I lost my family home.  There was a night we went over and "jammed" aka riley and gabe jammed on piano and that indian accordian thinger (name please), and the rest of us got to sing along and do drum circles.  someone, i think adam, brought out yarn and ran around the room, spinning a web around all of us.  i remember feeling nearly delirious with joy - sincerely internally on the edge of talking in tongues, while onthe outside reminding myself to keep some of that joy to myself, because i didn't want to ruin the moment by making it about me.
     + tagging: Gabe, Riley, Adam, Berliner, Cheltenham kids (encourage you to add an angle and fill in tags!)
@@ -36,6 +40,14 @@
     + JB, Gabe
     
     
++ (JB) One of my first dates with Sarah at Gold star beer counter, Sarah told me the story about how her grandpa tried to kill himself by starving himself, but didn’t realize how long it would take.  Sarah’s aunt called her dad perplexed and told him dad is trying to starve himself.  When her dad, Joe, called his dad and told him, there was a pause on the phone and then 
+…son, I’m so hungry.”
+    + (Sarah) You almost cancelled because you said you had hives (lol). But I didn’t care. Neither of us had eaten anything so you ordered me a sandwich before I got there. I remember the yellow glow of the place really clearly. You were sitting eating a sandwich and I felt like you were really happy to see me. I was really happy to see you. You told me about some of the stuff you worked on at Princeton. But it was mostly me talking that night about my grandpa that I remember. You looked really into it. I felt like it was one of the first times I thought you might really like me. I also remember the sandwich being better than it had any right to be. We were both surprised.
+
+I realized I need this girl in my life.   Funniest date story I’ve ever heard.  Maybe the best date I’ve ever had.  I left SWOONING.
+I had a “grape beer” and a pesto chicken sandwich.
+    + JB, Sarah
+
 + (Adam Drake) I remember the first time we were making a plan to hang out waiting for busses in the parking lot at EP - we had it all planned to do it on a Wednesday early day and somehow I called my mom and asked if I could but we couldn't figure out how to tell her where you lived so she didn't let the hangout happen.
     - JB
 
@@ -52,6 +64,9 @@
 
 + (Sarah) We decided to have a picnic on the water for my birthday last year because it was one of the first sunny days of spring, walked for hours to find food but couldn't find anywhere that was open except the Lebenese deli. Got way too much (incredible) food, set up the most beautiful picnic at the park, hung out by the water until 15 minutes later we each realized at the same time that we both had blue lips and were pretending not to shiver because we didn't want to ruin the moment and laughed about it. (But then moved the picnic to 832 Washington)
     + JB, Sarah
+    
++ (JB) The week after Vassar we spent with me living on the floor of Emilyn's apartment on 2nd and 5th.  Something something duffel bags full of guns and cocaine.  Also just chilling on Sol 40s after a hearty B+H breakfast.
+    + JB, Jordan Kaye, Emilyn
     
 + (Merle + Michael Drake)
     + You (JB) showing up for us at my father’s and mom’s shiva.
@@ -91,3 +106,5 @@
 
 + (Sarah) When Jeff poisoned us and we were already so close to death but you couldn't leave Mexico without a queso fundido. The world's coolest outdoor kitchen. Also the tiny dog that guarded the pool. Also the jaguar, which was real. 
     +JB, Sarah
+    
+    + (Lisa) running into jb and sarah at sharlene's super late night- we were both so freakin excited to see each other. then also running into each other at that italian place Sauce in the LES late at night. running into you in nyc is my favorite thing ever. every time we shout at each others faces WE NEED TO HANG OUT ALL THE TIME STARTING RIGHT NOW which is totally true. it feels like a hack, like, wait- one of my all time favorite people from my childhood ALSO gets to be here in my adulthood, standing outside some random spot we both went to inside the whirlpool of our regular lives!???? i love that feeling. 
