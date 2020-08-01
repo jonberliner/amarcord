@@ -38,6 +38,7 @@
     
 + (JB) One of my first dates with Sarah at Gold star beer counter, Sarah told me the story about how her grandpa tried to kill himself by starving himself, but didn’t realize how long it would take.  Sarah’s aunt called her dad perplexed and told him dad is trying to starve himself.  When her dad, Joe, called his dad and told him, there was a pause on the phone and then 
 …son, I’m so hungry.”
+    + (Sarah) You almost cancelled because you said you had hives (lol). But I didn’t care. Neither of us had eaten anything so you ordered me a sandwich before I got there. I remember the yellow glow of the place really clearly. You were sitting eating a sandwich and I felt like you were really happy to see me. I was really happy to see you. You told me about some of the stuff you worked on at Princeton. But it was mostly me talking that night about my grandpa that I remember. You looked really into it. I felt like it was one of the first times I thought you might really like me. I also remember the sandwich being better than it had any right to be. We were both surprised.
 
 I realized I need this girl in my life.   Funniest date story I’ve ever heard.  Maybe the best date I’ve ever had.  I left SWOONING.
 I had a “grape beer” and a pesto chicken sandwich.
