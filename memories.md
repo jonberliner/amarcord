@@ -63,6 +63,9 @@ I had a “grape beer” and a pesto chicken sandwich.
 + (Sarah) We decided to have a picnic on the water for my birthday last year because it was one of the first sunny days of spring, walked for hours to find food but couldn't find anywhere that was open except the Lebenese deli. Got way too much (incredible) food, set up the most beautiful picnic at the park, hung out by the water until 15 minutes later we each realized at the same time that we both had blue lips and were pretending not to shiver because we didn't want to ruin the moment and laughed about it. (But then moved the picnic to 832 Washington)
     + JB, Sarah
     
++ (JB) The week after Vassar we spent with me living on the floor of Emilyn's apartment on 2nd and 5th.  Something something duffel bags full of guns and cocaine.  Also just chilling on Sol 40s after a hearty B+H breakfast.
+    + JB, Jordan Kaye, Emilyn
+    
 + (Merle + Michael Drake)
     + You (JB) showing up for us at my father’s and mom’s shiva.
     + Hours on the phone figuring out big leap’s in life
