@@ -36,6 +36,13 @@
     + JB, Gabe
     
     
++ (JB) One of my first dates with Sarah at Gold star beer counter, Sarah told me the story about how her grandpa tried to kill himself by starving himself, but didn’t realize how long it would take.  Sarah’s aunt called her dad perplexed and told him dad is trying to starve himself.  When her dad, Joe, called his dad and told him, there was a pause on the phone and then 
+…son, I’m so hungry.”
+
+I realized I need this girl in my life.   Funniest date story I’ve ever heard.  Maybe the best date I’ve ever had.  I left SWOONING.
+I had a “grape beer” and a pesto chicken sandwich.
+    + JB, Sarah
+
 + (Adam Drake) I remember the first time we were making a plan to hang out waiting for busses in the parking lot at EP - we had it all planned to do it on a Wednesday early day and somehow I called my mom and asked if I could but we couldn't figure out how to tell her where you lived so she didn't let the hangout happen.
     - JB
 
