@@ -6,19 +6,18 @@
 [shared memory bank](https://github.com/jonberliner/amarcord/blob/master/memories.md) to add to, look back on, and enjoy
 
 ### why
-I (Jon Berliner) have been through and am going through some rough stuff in life beyond my control.  Ask each other (please do, btw!) for specifics before asking me, please.
-I'm choosing to channel all the emotion its bringing up in me into something enjoyable and beautiful by and for the people I love.
-I'd prefer you to help me as I process by taking 5 min to do something happy and positive rather than longer to re-explain unhappy stuff in the past.
+I'm (Jon Berliner) choosing to channel all the emotion life throws into something enjoyable and beautiful by and for the people I love.
+I'd prefer you to help me as life keeps coming by taking 5 min to do something kinda awesome rather than longer to re-explain unhappy stuff in the past.
 
-I want you to add to a doc of shared experiences so that we can remember them for the murky beauty they are, rather than framed in defiance to abusers or argued over exactly what happened.  Memory doesn't work that way.  Enjoy the beautiful blur of vibes instead.  Watch people discuss different angles of the same event and see how little journaling down specific parts of a memory matters.
+I want you to add to a doc of our shared experiences so that we can remember them for the murky beauty they are, rather than individually or through arguing over exactly what happened.  Memory doesn't work that way.  Enjoy the beautiful blur of vibes instead.  Watch people discuss different angles of the same event and see how little journaling down specific parts of a memory matters.
 + All my favorite memories are shared experiences with you beautiful folk.  I don't want stories about me.  I want all of you to capture memories about US.
 + Help me process a ton of trauma by making something beautiful, rather than shaking heads and telling how awful it was.  It wasn't awful, because we've had all the great moments we've had.
 
 ### What, but this time a bit longer
 + shared document with stories.  getting details exact is NOT the point - do not argue over what happened.  Just add your angle to a shared experience.
++ memories don't need to include me.  Watch and enjoy how just being brought back to certain contexts will open up more opportunities for memories to pour out
 + If you see a story you were part of but remember it differently, add you're angle!  Have fun trying to figure out who was there, when it was, why we did it, why YOU personally did it.
 + Jump in to tag yourself - don't take offense if someone didn't tag you.  We love each other - I promise that if I missed you, it's not because I think less of you.  I just didn't remember, and will be that much happier to be reminded that I shared an experience with YOU also.
-+ they don't need to include me.  Watch with wonder how just being brought back to certain contexts will open up more opportunities for memories to pour out
 + DON'T try to remember the whole thing - the point is that we can put in small individual efforts, and put together a rich picture of a shared lived experience more clear and stable than any individual perspective, no matter how much effort goes into to said single angle or framing.
 + You may see memories from people that don't know you.  That's okay!  You're wonderful people.  If I can talk about abuse in the light to all you guys, you can be brave and talk about a few wonderful moment's you've had, even if you talk about them in front of wonderful friends' wonderful friends.
 
