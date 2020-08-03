@@ -7,9 +7,16 @@
 
 + (JB) The crave case day.  Joe and I walked past a white castle at like 3AM smashed and I told him I've never been to White Castle before.  We decided we needed a crave case - suitcase fulla burgers.  It was like $24 bucks and we agreed we didn't have the money to spend that for a laugh.  So we made the grown ass decision that it would be the only food to touch our mouths for 24hrs.  Hijinx ensued.
     + JB, Joey V
-
+    
 + (Jon Berliner) The Friendsgiving crew cheltenham friends were the closest thing I had to family in high school.  When Gabe's family sold the house, I felt like I lost my family home.  There was a night we went over and "jammed" aka riley and gabe jammed on piano and that indian accordian thinger (name please), and the rest of us got to sing along and do drum circles.  someone, i think adam, brought out yarn and ran around the room, spinning a web around all of us.  i remember feeling nearly delirious with joy - sincerely internally on the edge of talking in tongues, while onthe outside reminding myself to keep some of that joy to myself, because i didn't want to ruin the moment by making it about me.
     + tagging: Gabe, Riley, Adam, Berliner, Cheltenham kids (encourage you to add an angle and fill in tags!)
+    + (Sam K) To riff on your dropping in/half pipe: Yes! Was there jousting on the half pipe (named Gerald righ?) , or did I imagine the jousting. Also the demoness I spray painted on the wall.  Also ppl got really hurt on the half pipe lol. A board flew into someone’s head — Sophie’s? 
+    + (JB) You guys that, like, actually knew how to skate were probably jousting.  I can't remember when that went down though 
+    + (Sam K) Lots of beer on that half pipe.  I remember sitting jousting but yea idk. I also did not know how to skate lol
+
++ (Sam K) That schlitz game where we like have cards and punch each other or something? I remember throwing up schlitz more than other beers. And that violent game somehow related (?)  I remember throwing up schlitz more than other beers. And that violent game somehow related.
+    + Cheltenham kids
+    + (JB) Oh think you mean Jungle Speed!  That game where you put a totem pole in the middle and flip cards until two people get a match and fight over the tote.  Learned that one with the camp kids on a trip to Israel summer before senior year.
 
 + (Jon Berliner) I asked Riley how to hop from rock to rock when water hiking (my family would never let us do family activities growing up - only watching movies or tv together, or going to my mom's parents' house in toledo were allowed - so I had to learn how to appreciate nature from a combo of middle school PEAK trip (not to be confused with Sam "Don't Tell me What's Real" Kassel's peak trip at the Soltrin cabin)), some curated nature walks at Camp Ramah, and winging it trying to keep up with all you guys' awesome naturing abilities.  Riley looked confused laughed, shrugged his shoulders, and said something along the lines of "uuuh, you kinda just walk!" and laughed.  Thanks for making it a joyous moment instead of one I felt embarassed to ask about
     + Also, asked Riley how to do a flip once, and he told me "try really really really hard."  I, actually really sincerely, use that advice for so many things in life still.  It's a hilariously effective way to teach yourself how to do something.  Thanks, Riley!
