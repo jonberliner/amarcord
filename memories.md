@@ -13,10 +13,13 @@
     + (Sam K) To riff on your dropping in/half pipe: Yes! Was there jousting on the half pipe (named Gerald righ?) , or did I imagine the jousting. Also the demoness I spray painted on the wall.  Also ppl got really hurt on the half pipe lol. A board flew into someone’s head — Sophie’s? 
     + (JB) You guys that, like, actually knew how to skate were probably jousting.  I can't remember when that went down though 
     + (Sam K) Lots of beer on that half pipe.  I remember sitting jousting but yea idk. I also did not know how to skate lol
+    + (Lisa) i believe gabe and others  made the rule "you come in you drop in"?? also, "no chapstick" - i still think about that every time i use chapstick. I did eventually try to drop in (was literally terrified), immediately busted up my hip and face. that was when i was a secret hardcore ballerina so every day in rehearsal i had to deal with this massive bruise on my hip. but...a rules a rule. 
 
 + (Sam K) That schlitz game where we like have cards and punch each other or something? I remember throwing up schlitz more than other beers. And that violent game somehow related (?)  I remember throwing up schlitz more than other beers. And that violent game somehow related.
     + Cheltenham kids
     + (JB) Oh think you mean Jungle Speed!  That game where you put a totem pole in the middle and flip cards until two people get a match and fight over the tote.  Learned that one with the camp kids on a trip to Israel summer before senior year.
+    + (Lisa) Pass the Shclitz!! it was a game where we sat in a circle and sang "duh duh duh duh duh duh duh duh....duh duh duh pass the schlitz" and then you drank (of the schlitz) - wish i could write in the tune. (Berliner i feel like this game was of your invention, or at least you were its progenitor)
+    +tagged: Berliner, pretty much everyone
 
 + (Jon Berliner) I asked Riley how to hop from rock to rock when water hiking (my family would never let us do family activities growing up - only watching movies or tv together, or going to my mom's parents' house in toledo were allowed - so I had to learn how to appreciate nature from a combo of middle school PEAK trip (not to be confused with Sam "Don't Tell me What's Real" Kassel's peak trip at the Soltrin cabin)), some curated nature walks at Camp Ramah, and winging it trying to keep up with all you guys' awesome naturing abilities.  Riley looked confused laughed, shrugged his shoulders, and said something along the lines of "uuuh, you kinda just walk!" and laughed.  Thanks for making it a joyous moment instead of one I felt embarassed to ask about
     + Also, asked Riley how to do a flip once, and he told me "try really really really hard."  I, actually really sincerely, use that advice for so many things in life still.  It's a hilariously effective way to teach yourself how to do something.  Thanks, Riley!
@@ -102,6 +105,7 @@ I had a “grape beer” and a pesto chicken sandwich.
 
 + (JB) Adam made Koolaid chicken at Elk Mountain once bc we ran out of something (lime?)  Some of the best chicken I ever had.
     + Elk mountain folk
++ (Lisa) THANK YOU for reminding me of koolaid chicken. remember post dinner clean up stylings at elk mountain? one person wash, one person dry, one person put. I was always wash.  Berliner i definitly remember being on a wash/dry/put team with you. this is still how i organzine my life btw
     
 + (JB) Pushing Desh to "seize the moment" towards the end of Gesher and him telling me that how he wanted to have that particular moment was by reading the bio of Malcolm X.  Still think on that as a primo example of standing your ground for doing your thing.
     + Deshields, JB
